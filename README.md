@@ -1,4 +1,4 @@
-This accoutn is empty for old username protection purposes.
+This account is empty for old username protection purposes.
 If you are searching for my main account please look at B33low
 <!--
 **Ery4z/Ery4z** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
